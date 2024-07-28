@@ -1,0 +1,6 @@
+![Akka1](https://github.com/user-attachments/assets/adf7c7c1-3d99-4f49-beb8-a419c53ae3c8)
+![Akka2](https://github.com/user-attachments/assets/46ee5a3b-949a-4ba3-af66-a9247dd73985)
+![Akka3](https://github.com/user-attachments/assets/aec2959d-a4d2-4ee1-9b6b-060247e6fa05)
+![Akka4](https://github.com/user-attachments/assets/e4c430df-54c7-4186-bd03-e85010677b21)
+![Akka5](https://github.com/user-attachments/assets/381c3504-c2b9-4afc-8b8a-c7c841f95d9b)
+![Akka6](https://github.com/user-attachments/assets/50fa54c5-048b-4738-b6b5-a1623c8d6225)
